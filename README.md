@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Poojashree307
 - 👀 I’m  a quick learner and a team player 
-- 🌱 I’m currently learning BE ECE
+- 🌱 I’m currently pursuing BE ECE
 - 💞️ I’m looking for a company to improve my skills 
 - 📫 gmail : shreepooja2004@gmail.com
 
